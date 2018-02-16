@@ -1,4 +1,4 @@
-# 38 538 georgian word which you can tattoo on your knuckles
+# 53 248 georgian word which you can tattoo on your knuckles
 
 
 
